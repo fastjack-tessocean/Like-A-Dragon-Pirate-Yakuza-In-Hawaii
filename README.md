@@ -240,4 +240,4 @@ Like a Dragon: Pirate Yakuza in Hawaii is available as a complete free version w
 Download Like a Dragon: Pirate Yakuza in Hawaii today and dive into an extraordinary adventure full of action and laughter!
 
 ---
-**Last updated:** 2026-09-19 19:10:00 UTC
+**Last updated:** 2026-09-19 22:07:39 UTC
